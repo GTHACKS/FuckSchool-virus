@@ -1,0 +1,1 @@
+# FuckSchool-virus
